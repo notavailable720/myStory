@@ -1,1 +1,13 @@
-Once upon a time. There was a person. A royally stupid person. His name, was Nikita. He attempted to code on his own, but he failed. To be continued.   
+To be continued.
+He attempted to code on his own, but he failed.  
+His name, was Nikita. 
+A royally stupid person. 
+There was a person. 
+Once upon a time.
+
+
+   
+
+
+
+
